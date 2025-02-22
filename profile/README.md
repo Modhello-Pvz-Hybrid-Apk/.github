@@ -7,7 +7,7 @@
 
 Plants vs. Zombies Hybrid APK es una versión modificada y mejorada del clásico juego de defensa de torres *Plants vs. Zombies*. Desarrollada por fanáticos, esta edición introduce nuevas plantas híbridas, mecánicas innovadoras y desafíos dinámicos que elevan la experiencia original. Los jugadores deben defender su jardín contra hordas de zombis utilizando plantas con habilidades únicas y, ahora, la capacidad de reposicionarlas en tiempo real.
 
-## https://modhello.io/pvz-hybrid.html
+## Descarga: 👍👍👍 https://modhello.io/pvz-hybrid.html
 
 ## Características Clave de Plants vs. Zombies Hybrid APK
 
@@ -18,6 +18,8 @@ Esta edición híbrida trae nuevas funciones que transforman la jugabilidad:
 - **Niveles con múltiples banderas:** Cada nivel tiene hasta 11 fases que aumentan en dificultad.
 - **Interfaz intuitiva:** Controles simples para una jugabilidad fluida.
 - **Desafíos progresivos:** La dificultad aumenta conforme avanzas, manteniendo el reto constante.
+
+![image](https://github.com/user-attachments/assets/80088515-e732-4fbb-8cf8-4464d96683e0)
 
 ## Jugabilidad de Plants vs. Zombies Hybrid APK
 
@@ -76,6 +78,8 @@ Sigue estos pasos para descargar e instalar el juego:
 ## ¿Es Seguro Usar Plants vs. Zombies Hybrid APK?
 
 Sí, siempre que descargues el APK desde una fuente segura como [ModHello.io](https://modhello.io). El archivo ha sido probado para garantizar que esté libre de malware.
+
+![3172977044](https://github.com/user-attachments/assets/910340c0-2c89-4205-80cc-38b2781d616f)
 
 ## Preguntas Frecuentes (FAQs) sobre Plants vs. Zombies Hybrid APK
 
